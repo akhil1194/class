@@ -11,7 +11,7 @@
 1795574 Arun : arun is a good boy 
 1893312 Nandakishore: Freedom, the only day for which many lives are burnt as candles to give endless light.
 
-1895155 harkirat : do hard work..!!
+1895155 harkirat : do hard work.. or die...
 
 
 
