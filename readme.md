@@ -8,7 +8,7 @@
 1893316 ajay:live and let live
 1893397 santosh  : you see things as you are and not as they are
 1893555 sathvik : all the best
-
+1892678 akshil : life is experiment.
 1894098 akbarjeet:god is everywhere
 1893481 vivekkumar: life is full of adventure
 
@@ -26,11 +26,14 @@
 
 1893373 sai krishna akula : all is well
 
+1892980 Pramodh: go goa gone
 1892980 Pramodh: like a thunder..!
 
 
 
-1894098 akbarjeet:god is every
-1893567 vamshi krishna vasa  i am the best ...!
-1893739 jagdeepsharma: best
+1894098 akbarjeet:god is everywhere
 
+
+1892980 Pramodh: like a thunder..!
+1893567 vamshi krishna vasa  i am the best ...!
+1893476 inder: life is nothing without challenges 
