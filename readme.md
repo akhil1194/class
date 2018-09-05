@@ -8,4 +8,4 @@
 1893316 ajay:live and let live
 1893397 santosh  : you see things as you are and not as they are
 1893555 sathvik : all the best
-1892980 pramodh : all is well
+1893567 vamshi vasa : when you are good at somethimg you should not do for free
