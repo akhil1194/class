@@ -9,3 +9,4 @@
 1893397 santosh  : you see things as you are and not as they are
 1893555 sathvik : all the best
 1795574 Arun : arun is a good boy 
+1893312 Nandakishore: Freedom, the only day for which many lives are burnt as candles to give endless light.
