@@ -13,10 +13,34 @@
 1893397 santosh  : you see things as you are and not as they are
 1893555 sathvik : all the best
 
+1892678 akshil : life is experiment.
+1894098 akbarjeet:god is everywhere
+1893481 vivekkumar: life is full of adventure
+
 
 1795574 Arun : arun is a good boy 
 1893312 Nandakishore: Freedom, the only day for which many lives are burnt as candles to give endless light.
 1794994 krishna: live life as king size.
+
+
+
+
+
+1894098 akbarjeet:god is everywhere
+
+1893373 sai krishna akula : all is well.
+
+1893373 sai krishna akula : all is well
+
 1892980 Pramodh: go goa gone
 1892980 Pramodh: like a thunder..!
+
+
+
+1894098 akbarjeet:god is everywhere
+
+
+1892980 Pramodh: like a thunder..!
+1893567 vamshi krishna vasa  i am the best ...!
+1893476 inder: life is nothing without challenges 
 
