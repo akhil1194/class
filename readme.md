@@ -5,3 +5,4 @@
 1892593 vijay: Lif is the way about you think.
 1894128 sanjay : If you cannot do great things, do small things in a great way
 1892930 rohith: work hard play hard.
+1893316 ajay:live and let live
