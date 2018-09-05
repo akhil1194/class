@@ -11,29 +11,12 @@
 1892678 akshil : life is experiment.
 1894098 akbarjeet:god is everywhere
 1893481 vivekkumar: life is full of adventure
-
 1795574 Arun : arun is a good boy 
 1893312 Nandakishore: Freedom, the only day for which many lives are burnt as candles to give endless light.
 1794994 krishna: live life as king size.
-
-
-
 1892693 ramanpreet kaur; iam the best
-
-
-
 1893373 sai krishna akula : all is well.
-
-1893373 sai krishna akula : all is well
-
-
-
-
-
-
-
 1892980 Pramodh: like a thunder..!
 1893567 vamshi krishna vasa  i am the best ...!
 1893476 inder: life is nothing without challenges 
 1893739 jagdeepsharma: best
-1892979 Poorna Chandra ; Do it or die
