@@ -3,6 +3,7 @@
 1892593 vijay: Lif is the way about you think.
 1893728 Ankush:Work until your bank balance look like your phn no.
 
+1893829 Sagar : Satiesfaction is greatest happieness 
 
 1893033 Davinder singh kharoud:Guru is god
 1893551 dinesh: tom hates jerry
