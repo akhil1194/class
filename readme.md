@@ -20,7 +20,7 @@
 
 
 1794994 krishna: live life as king size.
-<<<<<<< HEAD
+
 
 
 
@@ -68,4 +68,6 @@
 1893476 inder: life is nothing without challenges 
 1893739 jagdeepsharma: best
 1895155 harkirat: do work 
+
+1893344 jaimina: raman is good girl
 
