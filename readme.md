@@ -11,4 +11,5 @@
 1795574 Arun : arun is a good boy 
 1893312 Nandakishore: Freedom, the only day for which many lives are burnt as candles to give endless light.
 1794994 krishna: live life as king size.
-1893373 sai krishna akula : all is well.
+1892980 Pramodh: go goa gone
+1892980 Pramodh: like a thunder..!
