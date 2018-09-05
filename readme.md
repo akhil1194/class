@@ -10,12 +10,12 @@
 1893555 sathvik : all the best
 1795574 Arun : arun is a good boy 
 
-
+1794994 krishna: live life king size.
 1895155 harkirat : do hard work.. or die...
 1893312 Nandakishore: Freedom, the only day for which many lives are burnt as candles to give endless light.
 
 
-1794994 krishna: live life as king size.
+
 
 1894061 Harshraj:life is good.
 1893150  Rajvir kaur : Unique
