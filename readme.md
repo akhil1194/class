@@ -18,20 +18,21 @@
 
 
 
+1892693 ramanpreet kaur; iam the best
 
 
-1894098 akbarjeet:god is everywhere
 
 1893373 sai krishna akula : all is well.
 
-1893373 sai krishna akula : all is wel
+1893373 sai krishna akula : all is well
+
+
+
+
+
+
+
 1892980 Pramodh: like a thunder..!
-
-
-
-1894098 akbarjeet:god is everywhere
-
-
-1893739 jagdeepsharma: best
 1893567 vamshi krishna vasa  i am the best ...!
 1893476 inder: life is nothing without challenges 
+1893739 jagdeepsharma: best
