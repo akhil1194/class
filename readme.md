@@ -33,6 +33,7 @@
 
 1894098 akbarjeet:god is everywhere
 
+1892693 ramanpreet kaur; iam the best
 
 1892980 Pramodh: like a thunder..!
 1893567 vamshi krishna vasa  i am the best ...!
