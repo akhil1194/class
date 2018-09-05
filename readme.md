@@ -4,3 +4,4 @@
 
 1892593 vijay: Lif is the way about you think.
 
+1893397 santosh : You see things as you are , not as they are.
