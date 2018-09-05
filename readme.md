@@ -85,5 +85,5 @@
 
 1893344 jaimina: raman is good girl
 
-1893343 Jayesh :Life is all about new Chances.
+1893343 Jayesh :Life is all about new Chances
 
