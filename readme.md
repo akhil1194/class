@@ -18,27 +18,12 @@
 1893481 vivekkumar: life is full of adventure
 
 
+>>>>>>> e2f634c3167a7a19bdbc8ea0f0747cb4fefd57d2
 1795574 Arun : arun is a good boy 
 1893312 Nandakishore: Freedom, the only day for which many lives are burnt as candles to give endless light.
 1794994 krishna: live life as king size.
-
-
-
 1892693 ramanpreet kaur; iam the best
-
-
-
 1893373 sai krishna akula : all is well.
-
-1893373 sai krishna akula : all is well
-
-1892980 Pramodh: go goa gone
-1892980 Pramodh: like a thunder..!
-
-
-
-
-
 1892980 Pramodh: like a thunder..!
 1893567 vamshi krishna vasa  i am the best ...!
 1893476 inder: life is nothing without challenges 
@@ -46,5 +31,9 @@
 
 
 1893739 jagdeepsharma: best
+
 1892979 Poorna Chandra ; Do it or die
+
+1895155 harkirat: do work 
+1893344 jaimina: raman is good girl
 
