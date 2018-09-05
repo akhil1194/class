@@ -8,5 +8,11 @@
 1893316 ajay:live and let live
 1893397 santosh  : you see things as you are and not as they are
 1893555 sathvik : all the best
+
 1894098 akbarjeet:god is everywhere
 1893481 vivekkumar: life is full of adventure
+
+1795574 Arun : arun is a good boy 
+1893312 Nandakishore: Freedom, the only day for which many lives are burnt as candles to give endless light.
+1794994 krishna: live life as king size.
+
