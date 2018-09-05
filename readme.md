@@ -26,8 +26,7 @@
 
 1893373 sai krishna akula : all is well
 
-1892980 Pramodh: go goa gone
-1892980 Pramodh: like a thunder..!
+
 
 
 
