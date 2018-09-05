@@ -1,5 +1,9 @@
 1893648 akhil: reza is the best
 
+1892593 vijay: Lif is the way about you think.
+1893728 Ankush:Work until your bank balance look like your phn no.
+
+
 1893033 Davinder singh kharoud:Guru is god
 1893551 dinesh: tom hates jerry
 1892593 vijay: Lif is the way about you think.
@@ -12,9 +16,13 @@
 1893316 ajay:live and let live
 1893397 santosh  : you see things as you are and not as they are
 1893555 sathvik : all the best
+
 1892678 akshil : life is experiment.
 1894098 akbarjeet:god is everywhere
 1893481 vivekkumar: life is full of adventure
+
+
+
 1795574 Arun : arun is a good boy 
 1893312 Nandakishore: Freedom, the only day for which many lives are burnt as candles to give endless light.
 
@@ -66,7 +74,13 @@
 1892980 Pramodh: like a thunder..!
 1893567 vamshi krishna vasa  i am the best ...!
 1893476 inder: life is nothing without challenges 
+
+
+
 1893739 jagdeepsharma: best
+
+1892979 Poorna Chandra ; Do it or die
+
 1895155 harkirat: do work 
 
 1893344 jaimina: raman is good girl
