@@ -5,8 +5,12 @@
 
 
 1893033 Davinder singh kharoud:Guru is god
-
+1893551 dinesh: tom hates jerry
 1892593 vijay: Lif is the way about you think.
+
+1893551 dinesh: tom hates jerry
+
+
 1894128 sanjay : If you cannot do great things, do small things in a great way
 1892930 rohith: work hard play hard.
 1893316 ajay:live and let live
@@ -21,7 +25,50 @@
 >>>>>>> e2f634c3167a7a19bdbc8ea0f0747cb4fefd57d2
 1795574 Arun : arun is a good boy 
 1893312 Nandakishore: Freedom, the only day for which many lives are burnt as candles to give endless light.
+
+
 1794994 krishna: live life as king size.
+
+
+
+
+
+
+
+
+1893373 sai krishna akula : all is well.
+
+
+
+1893373 sai krishna akula : all is well
+
+
+
+1893373 sai krishna akula : all is wel
+
+
+1893373 sai krishna akula : all is well
+
+1892980 Pramodh: go goa gone
+
+1892980 Pramodh: like a thunder..!
+
+
+
+1894098 akbarjeet:god is everywhere
+
+1892693 ramanpreet kaur; iam the best
+
+
+
+
+1893567 vamshi krishna vasa  i am the best ...!
+1893476 inder: life is nothing without challenges 
+1892980 Pramodh: like a thunder..!
+1893567 vamshi krishna vasa  i am the best ..
+1895155 harkirat do work
+
+
 1892693 ramanpreet kaur; iam the best
 1893373 sai krishna akula : all is well.
 1892980 Pramodh: like a thunder..!
@@ -35,5 +82,6 @@
 1892979 Poorna Chandra ; Do it or die
 
 1895155 harkirat: do work 
+
 1893344 jaimina: raman is good girl
 
