@@ -22,7 +22,7 @@
 1893481 vivekkumar: life is full of adventure
 
 
->>>>>>> e2f634c3167a7a19bdbc8ea0f0747cb4fefd57d2
+
 1795574 Arun : arun is a good boy 
 1893312 Nandakishore: Freedom, the only day for which many lives are burnt as candles to give endless light.
 
