@@ -9,3 +9,4 @@
 1893397 santosh  : you see things as you are and not as they are
 1893555 sathvik : all the best
 1894098 akbarjeet:god is everywhere
+1893481 vivekkumar: life is full of adventure
