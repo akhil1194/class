@@ -16,3 +16,6 @@
 1893312 Nandakishore: Freedom, the only day for which many lives are burnt as candles to give endless light.
 1794994 krishna: live life as king size.
 
+
+
+1894098 akbarjeet:god is everywhere
