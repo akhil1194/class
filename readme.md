@@ -18,11 +18,7 @@
 
 
 
-1892693 ramanpreet kaur; iam the best
-
-
-
-1893373 sai krishna akula : all is well.
+1892693 ramanpreet kaur; iam the bes
 
 1893373 sai krishna akula : all is well
 
