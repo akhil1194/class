@@ -64,7 +64,7 @@
 1892693 ramanpreet kaur; iam the best
 1893373 sai krishna akula : all is well.
 1892980 Pramodh: like a thunder..!
-1893567 vamshi krishna vasa  i am the best ...!
+1893567 vamshi krishna vasa  when you are good at something don't do it for free ...!
 1893476 inder: life is nothing without challenges 
 
 1892580 : HarneetHarneet
